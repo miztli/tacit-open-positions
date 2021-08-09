@@ -46,10 +46,15 @@ As a Quality Engineer for Tacit Knowledge, you will be responsible for deliverin
 - Major medical expense and social liability insurance
 - Life insurance
 - Dental care plan
+- Food vouchers
+- Flexible schedule
+- Competitive market salary according to seniority level
+- Paid relocation (if you want to relocate to Guadalajara)
+- Paid courses, trainings and certifications
+- Paid vacations
+- 12 extra days out of office (paid), for appointments, birthdays, or any reason you need
+
+_At the office:_
 - Snacks and drinks
 - Entertainment lounge
 - Relaxation lounge
-- Flexible schedule
-- Food vouchers
-- Competitive market salary according to seniority level
-- Paid relocation (if you want to relocate to Guadalajara)
