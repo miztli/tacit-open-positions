@@ -42,3 +42,20 @@ _At Tacit Knowledge you will:_
 - Experience developing test plans on the System, Unit, Integration and Interface level
 - Agile Project Management experience and/or demonstration of desire to grow these skills
 - eCommerce business analysis experience, either within a consultancy or the online division of an established retailer
+
+### Benefits:
+
+- Christmas bonus
+- Productivity bonus (Twice a year)
+- Yearly savings fund
+- Yearly profit sharing
+- Major medical expense and social liability insurance
+- Life insurance
+- Dental care plan
+- Snacks and drinks
+- Entertainment lounge
+- Relaxation lounge  
+- Flexible schedule
+- Food vouchers
+- Competitive market salary according to seniority level
+- Paid relocation (if you want to relocate to Guadalajara)

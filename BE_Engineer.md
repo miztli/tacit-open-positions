@@ -55,3 +55,20 @@ _At Tacit Knowledge you will:_
 - Experience in performance testing and analysis with tools such as JMeter
 - Hands-on experience with troubleshooting issues in production environment
 - Experience in a professional consulting environment
+
+### Benefits:
+
+- Christmas bonus
+- Productivity bonus (Twice a year)
+- Yearly savings fund
+- Yearly profit sharing
+- Major medical expense and social liability insurance
+- Life insurance
+- Dental care plan
+- Snacks and drinks
+- Entertainment lounge
+- Relaxation lounge
+- Flexible schedule
+- Food vouchers
+- Competitive market salary according to seniority level
+- Paid relocation (if you want to relocate to Guadalajara)

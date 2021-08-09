@@ -47,3 +47,20 @@ Would be a plus if you have:
 - An eye for design and passion for exceptional user experiences
 - Familiarity with tools and techniques such as continuous integration and automated testing
 - Experience in eCommerce sector
+
+### Benefits:
+
+- Christmas bonus
+- Productivity bonus (Twice a year)
+- Yearly savings fund
+- Yearly profit sharing
+- Major medical expense and social liability insurance
+- Life insurance
+- Dental care plan
+- Snacks and drinks
+- Entertainment lounge
+- Relaxation lounge
+- Flexible schedule
+- Food vouchers
+- Competitive market salary according to seniority level
+- Paid relocation (if you want to relocate to Guadalajara)

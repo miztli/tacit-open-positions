@@ -36,3 +36,20 @@ As a Quality Engineer for Tacit Knowledge, you will be responsible for deliverin
 - Exposure to e-commerce platforms.
 - Experience in REST or SOAP API testing
 - Skilled in performance testing is a plus
+
+### Benefits:
+
+- Christmas bonus
+- Productivity bonus (Twice a year)
+- Yearly savings fund
+- Yearly profit sharing
+- Major medical expense and social liability insurance
+- Life insurance
+- Dental care plan
+- Snacks and drinks
+- Entertainment lounge
+- Relaxation lounge
+- Flexible schedule
+- Food vouchers
+- Competitive market salary according to seniority level
+- Paid relocation (if you want to relocate to Guadalajara)
